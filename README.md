@@ -98,3 +98,5 @@ https://raindrop.io/airepohub/ai-tools-listing-35970380
 https://www.reddit.com/r/thelatestaitools/
 
 https://www.kaggle.com/airepohub
+
+https://www.patreon.com/AIRepoHub
