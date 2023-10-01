@@ -79,8 +79,6 @@ https://lu.ma/airepohub
 
 https://www.behance.net/airepohub
 
-https://campsite.bio/airepohub
-
 https://Link.Gallery/airepohub
 
 https://lift.bio/airepohub
